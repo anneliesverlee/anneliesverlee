@@ -24,8 +24,7 @@ Expect everything from coursework to personal deep dives into the science of "wh
 
 ## 📫 Connect
 
-* 💼 [LinkedIn](https://www.linkedin.com/in/stef-vernelen/)
-* 🐙 [GitHub](https://github.com/SVern21)
+* 💼 [LinkedIn](https://www.linkedin.com/in/annelies-verlee-010547246/)
 
 ---
 
